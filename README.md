@@ -1,2 +1,0 @@
-# Oushodhghor.github.io
-no
